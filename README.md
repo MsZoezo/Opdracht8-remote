@@ -1,0 +1,1 @@
+Als je ogen pijn doen na het zwemmen komt dat niet door het chloor, maar door een te hoog urinegehalte in het water. :(
